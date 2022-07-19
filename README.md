@@ -1,6 +1,6 @@
 - 👋 Hi there, I’m Luan Moura 
 - 👀 I’m interested in learning and exploring new technologies.
-- 🌱 Currently, a Information System student at @Mackenzie, Reseracher, creative , focused on your goals.
+- 🌱 Currently, a Information System student at University Presbiterian Mackenzie, Researcher, creative , focused on your goals.
 - ❤️ Passionate about playing guitar, playing soccer, video games with friends and going out on the weekends.
 - 📫 luan.mouraadl@gmail.com
 
